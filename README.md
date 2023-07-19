@@ -1,3 +1,5 @@
+**Privacy Policy**
+
 **Introduction**
 
 As a customer, client, partner, or private citizen, your privacy and trust in our interactions are important to Osler360.  This Statement — referred to in the rest of this document as our “Privacy Statement.” – explains how Osler360 protects and maintains corporate data, especially the personally identifiable information of those interacting with our organization.
